@@ -1,6 +1,6 @@
 [Here Was My Safe Place](https://fishfourteen.github.io/)
 - Reading Machine
-- Cooking Mater
+- Cooking Master
 - To Be a Plant
 - Dance To Earth
 - Workaholic
